@@ -1,4 +1,4 @@
-Hi, I’m [Jegan S](https://github.com/JeganS21/) 👋. I'm Part time UI & UX Designer ( [@Adobe XD]() ).  
+Hi, I’m [Jegan S](https://github.com/JeganS21/) 👋🏻. I'm Part time UI & UX Designer ( [@Adobe XD]() ).  
 
 Unfortunately I'm a Student [@Kongunadu College Of Engineering and Technology](http://www.kongunadu.ac.in/).  
 I've Previously interned [@YalinTech](https://www.yalin.tech/).
