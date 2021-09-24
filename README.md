@@ -7,6 +7,7 @@ I’m currently learning [#Web Development]().
 Right Now, I’m looking to collaborate on an intern which offers me a better training.
 
 Contact Me 📫<a href="jegan994322@gmail.com">jegan994322@gmail.com</a> 
+(or)<a href="jegans.developer@gmail.com">jegans.developer@gmail.com</a>
 - ADOBE XD DESIGNER
 - WEB DESIGNER( INTERMEDIATE LEVEL )
 - SEEKING FOR AN INTERN
